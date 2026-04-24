@@ -11,3 +11,5 @@ I do have an idea on what I want to do for a major project but until then I need
 And make things die so first day starts tomorrow or well tpday but after I sleep.
 
 Journey started. 04/23/26
+
+I did nothing but watch tutorials today. Absolutley nothing.

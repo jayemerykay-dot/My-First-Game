@@ -12,4 +12,4 @@ And make things die so first day starts tomorrow or well tpday but after I sleep
 
 Journey started. 04/23/26
 
-I did nothing but watch tutorials today. Absolutley nothing.
+I did nothing but watch tutorials today. Absolutley nothing. 
